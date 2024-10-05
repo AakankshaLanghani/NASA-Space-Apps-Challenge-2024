@@ -33,3 +33,8 @@ This project aims to raise awareness about climate change through data-driven st
 ## Join Us!
 
 Help us uncover the compelling stories behind the data and advocate for a sustainable future! Explore the dashboard, dive into the data, and become a part of the movement for climate action.
+
+Connect With Us
+Email: akankshalanghani13@gmail.com
+LinkedIn: https://www.linkedin.com/in/aakankshapardeep/
+
